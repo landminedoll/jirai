@@ -1,4 +1,4 @@
-# jirai
+# jirai 
 ﹗  　　ৎ♡゙　　ようこそ !!　　 ͈ﾉ 　read b4 int  𐔌 　　     ;　　⠀⏝ི　﹒         `      I might make kms jokes so
 lmk if youre uncomfy w/ that !! 
 　　。。u can talk 2 me in ita/en/jp/es !!`
