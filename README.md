@@ -5,10 +5,11 @@ lmk if youre uncomfy w/ that !!
   
             ︶꒦꒷♡꒷꒦︶
             
-    Im really sensitive and often   emotionally unstable so I might cry for     certain things sometimes.`     —  ‹𝟹   `feel free to c+h or int anytime (plz im lonely)        𓎟   . ⊹
+    Im really sensitive and often   emotionally unstable so I might cry for     certain things sometimes.`     —  ‹𝟹   `feel free to c+h or int anytime (plz im lonely)        𓎟   . ⊹`
 
     
-    ;　　⠀⏝ི　﹒socials  '　︶ ͜⚢   
+      
+  ;　　⠀⏝ི　﹒socials  '　︶ ͜⚢   
 ` . ⊹        pintrst : @angeliclandmine`
  
 ` . ⊹        disc    : angeliclandmine`
