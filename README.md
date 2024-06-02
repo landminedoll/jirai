@@ -4,6 +4,7 @@ lmk if youre uncomfy w/ that !!
 　　。。u can talk 2 me in ita/en/jp/es !!`
   
             ︶꒦꒷♡꒷꒦︶
+         (scroll 2 read<3)
             
     Im really sensitive and often   emotionally unstable so I might cry for     certain things sometimes.`     —  ‹𝟹   `feel free to c+h or int anytime (plz im lonely)        𓎟   . ⊹`
 
